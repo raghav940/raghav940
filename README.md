@@ -64,8 +64,8 @@
 
 ## 🤝 Let's Connect!
 
-- 💼 [LinkedIn](https://www.linkedin.com/in/raghav940/)
-- 📧 Email: [raghav940@gmail.com](mailto:raghav940@gmail.com)
+- 💼 [LinkedIn](https://www.linkedin.com/in/raghavdadhich04/)
+- 📧 Email: [raghavdadhich04@gmail.com](mailto:raghavdadhich04@gmail.com)
 
 ---
 
